@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Pushkarrrrrrr
-- 👀 I’m interested in college 
+- 👀 I’m interested in making content
 - 🌱 I’m currently learning idk what :)
   
 - 💞️ I’m looking to collaborate on video editing and cinematics mostly
